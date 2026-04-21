@@ -1,4 +1,4 @@
-# 박희정 (Heejung Park)
+# 박희정 (Heejeong Park)
 
 **Software Engineer** @ 버니바이트
 
